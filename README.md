@@ -1,0 +1,1 @@
+# Jurnal-Trading-Snovmolly-28
